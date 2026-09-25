@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Jubayer H.
+# 👋 Hi, I'm Jubayer.
 
 ### CSE Student | Aspiring Network & Cybersecurity Engineer | MikroTik | Cisco | Network Security
 
